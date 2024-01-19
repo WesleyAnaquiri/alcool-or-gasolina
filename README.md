@@ -1,2 +1,2 @@
-Desenvolvido com a ajuda de um mine curso
+Desenvolvido com a ajuda de um cursinho
 treino :)
